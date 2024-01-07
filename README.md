@@ -6,6 +6,8 @@
 
 some works:
 https://www.tupy.org/dl/tupy_portfolio.pdf
+
+insta(other works):
 https://www.instagram.com/tupy_graphic_design/
 
 <!---
